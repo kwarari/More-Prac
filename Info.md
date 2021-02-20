@@ -20,7 +20,7 @@ Visit [University of Washington](https://uw.edu) for more information
 ## Where I Live 
 Fife, Washington.
 
-### Countries I have visited
+### Places I have visited
 
 * Oregon 
 * Carlifonia
